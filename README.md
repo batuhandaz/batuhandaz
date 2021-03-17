@@ -6,4 +6,6 @@ This work I do may sound inexperienced, if I have mistakes, please return to me.
 You can reach me from my gmail and linkedin addresses below.
 
 https://www.linkedin.com/in/batuhan-daz-599613205/
+
+
 batuhandazeee@gmail.com
